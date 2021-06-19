@@ -1,1 +1,3 @@
-# LRG-Cash
+The BEP-20 Token of LRG Community
+
+LRG Cash will be the community token that will be use  to acquire assets like aviation schools, real estate, cryptocurrency mining, own exchange and etc. We will be maximizing the use of renewable energy ( wind and solar ). we are also commited to help those who are in need specially the rural areas by putting up our projects near to them and provide them renewable energy. As promised, our token will be having an increasing value over time by sharing parts or our projects net income to our token holders. some percentage will go to our selected foundations which 80% will be selected by our community. We will build an empire and leave a legacy. - LRG Community.
